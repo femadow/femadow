@@ -1,16 +1,18 @@
-## Hi there 👋
+hihi! i'm **fem**adow. i'm **eighteen** y/o.
+pronouns are **he** or **she** but any work.
+#1 puppyboy. ^_^
 
-<!--
-**femadow/femadow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+i usually don't interact first, but i love to make new friends and talk to people.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+w2i is fine and **preferred**. i am sometimes offtab and i might not see your message right away. 
+
+
+c+h freely.
+
+
+dni under 16, proshippers, general dni criteria.
+
+
+![](https://i.postimg.cc/pdrjWLKr/tumblr-b526cb628c935e0d97a07f09b572d584-4365266a-640-ezgif-com-webp-to-gif-converter.gif)
