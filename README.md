@@ -12,7 +12,7 @@ w2i is fine and **preferred**. i am offtab sometimes and i might not see your me
 c+h freely and encouraged. ^_^
 
 
-dni under 16, proshippers, general dni criteria.
+dni under 16, general dni criteria.
 
 
 ![](https://i.postimg.cc/pdrjWLKr/tumblr-b526cb628c935e0d97a07f09b572d584-4365266a-640-ezgif-com-webp-to-gif-converter.gif)
