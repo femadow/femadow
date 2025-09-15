@@ -1,6 +1,7 @@
 hihi! i'm **fem**adow. i'm **eighteen** y/o.
 pronouns are **he** or **she** but any work.
 
+taken 12/07/21
 
 
 i usually don't interact first, but i love to make new friends and talk to people.
