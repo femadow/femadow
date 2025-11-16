@@ -11,6 +11,9 @@ w2i is fine and **preferred**. i am offtab sometimes and i might not see your me
 c+h freely and encouraged. ^_^
 
 
+<3 pyramid head, springtrap and sonar <3
+
+
 mdni, general dni criteria.
 
 
