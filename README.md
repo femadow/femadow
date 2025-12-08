@@ -7,12 +7,7 @@ i usually don't interact first, but i love to make new friends and talk to peopl
 
 #1 stoner
 
-
-w2i is fine and **preferred**. i am offtab sometimes and i might not see your message right away. 
-
-
-c+h freely and encouraged. ^_^
-
+taken 12.07.21
 
 <3 springtrap, toji fushiguro and pyramid head!! <3
 
