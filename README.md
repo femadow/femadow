@@ -1,8 +1,8 @@
 hihi! i'm **fem**adow. i'm **eighteen** y/o.
-pronouns are **she** or **he** but any work. i don't have a preference. :)
+any pronouns work.
 
 
-i usually don't interact first, but i love to make new friends and talk to people!! please bmf.
+i usually don't interact first, but i love to make new friends and talk to people, please bmf.
 
 
 #1 stoner and alcoholic 
