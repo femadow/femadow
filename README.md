@@ -1,11 +1,10 @@
-hihi! i'm **fem**adow. i'm **eighteen** y/o.
-any pronouns work.
+hihi! i'm **fem**adow. i'm **19** y/o.
+any pronouns work. preferably she/he
 
 
 i usually don't interact first, but i love to make new friends and talk to people, please bmf.
 
 
-#1 stoner and alcoholic 
 
 SUPER NORMAL ABOUT SPRINGTRAP. <3
 
